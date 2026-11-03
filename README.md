@@ -218,4 +218,4 @@ Hearthstone is the full free version with all features and updates included. No 
 Don't miss out on the exciting gameplay—**download Hearthstone free today and start your card-battling adventure!**
 
 ---
-**Last updated:** 2026-11-02 20:41:44 UTC
+**Last updated:** 2026-11-03 02:50:18 UTC
